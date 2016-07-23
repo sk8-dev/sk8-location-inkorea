@@ -1,0 +1,1 @@
+# sk8-location-inkorea
